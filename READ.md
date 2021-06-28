@@ -1,0 +1,1 @@
+O professor é bem dinamico e o conteudo bem intuitivo, já utilizava o GIT no dia a dia, porem acredito que com essas aulas, terei mais propriedade para executar comando e falar sobre esse assunto.
